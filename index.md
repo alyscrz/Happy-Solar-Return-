@@ -1,5 +1,3 @@
-# Happy Solar Return!
-
 ## **Em,**
 
 I just wanted to greet you happy solar return. The sun has returned to its original position from the moment you were born, for the eighteenth time. The moon was waning crescent when you were born and now the moon shines its brightest with the illuminating full moon. It’s been almost 8 months and you're still the person I think of with every full moon that passes.
